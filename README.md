@@ -1,4 +1,5 @@
 ## Hi there 👋
+![Gato fofo](https://tenor.com/pt-BR/view/cute-cat-white-gif-25424939)
 
 <!--
 **sofimedeirosz/sofimedeirosz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

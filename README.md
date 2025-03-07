@@ -1,5 +1,5 @@
 ## Bem vindo(a) ao meu perfil!
-![Gato fofo](https://media.tenor.com/ZZu2QC-efdUAAAAj/cute-cat-white.gif)
+![Gato fofo](https://media.tenor.com/EwKVXU4PZlwAAAAm/shad-fish-stardew-valley.webp)
 
 <!--
 **sofimedeirosz/sofimedeirosz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

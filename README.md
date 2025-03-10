@@ -1,5 +1,5 @@
 ## Bem vindo(a) ao meu perfil!
-![Gato fofo](https://media.tenor.com/gtnMACP4_-sAAAAi/see-ya-badtz-maru.gif)
+![Gato fofo](https://media.tenor.com/lGUwTeltLgQAAAAi/pokemon-gengareguitar.gif)
 
 <!--
 **sofimedeirosz/sofimedeirosz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

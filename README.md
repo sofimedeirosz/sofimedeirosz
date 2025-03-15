@@ -1,5 +1,5 @@
 ## Bem vindo(a) ao meu perfil!
-![](https://media.tenor.com/cI3DkhaIGbgAAAAj/peace-badtz-maru.gif)
+![](https://media.tenor.com/lGUwTeltLgQAAAAi/pokemon-gengareguitar.gif)
 ![](https://media.tenor.com/uPKBSSYU8BcAAAAj/computer-pixel.gif)
 
 <!--
